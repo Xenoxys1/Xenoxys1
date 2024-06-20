@@ -20,7 +20,7 @@
 
 **My socials:**
 
-- #### Discord: quimmlethal
+- #### Discord: arthilyscarlet
 - #### X: @ArthilyScarlet
 - #### Reddit: u/yukwey42
 
