@@ -20,12 +20,8 @@
 
 **My socials:**
 
-- #### Discord: arthilyscarlet
+- #### Discord: yukwey42
 - #### X: @ArthilyScarlet
-- #### Reddit: u/yukwey42
-
-# Quick description about me:
-
-I'm Xenoxys1, known by close friends and relatives by Arthur Moraes. My interests are a little confusing since I'm still learning new things almost every day, but I could say I enjoy making things that I can improve anytime with what I know. The language that I most know about is Java, and I'm currently studying with it. For now, I don't have any interest in any sorts of collabs or jobs. If you want to contact me I can provide an Email, but as I said above, I'm not looking for any kind of job or collab. There aren't many fun facts about me, but I'm on the way to learn more than I can until the end.
+- #### Instagram: @artie_moraes
 
 ![github-footer-image (3)](https://github.com/Xenoxys1/Xenoxys1/assets/135155777/1f98bdbc-c318-4873-82ac-49a0a828c8b2)
